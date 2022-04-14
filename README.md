@@ -1,2 +1,2 @@
 # deneme
-burada denemeler yapiyorum
+burada denemeler yapiyorumddd
